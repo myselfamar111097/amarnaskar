@@ -1,6 +1,5 @@
-Thanks for downloading this template!
+Self-motivated and hardworking fresher seeking an opportunity to work in a challenging environment to prove my skills and utilize my knowledge & intelligence in the growth of the organization.
 
-Template Name: MyResume
-Template URL: https://bootstrapmade.com/free-html-bootstrap-template-my-resume/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+This is one of my works to showcase my skills.
+
+Thanks for a visit.!
